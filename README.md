@@ -1,3 +1,1 @@
-A cheat about a fps game.
-You can use it to know enemy pos in radar.
-Only for study!!!!!
+A perspective cheat about a fps (absolutely not cs2),Only for study!!!!!If you want to use it for bussiness,you r piece of shi*****,and son of bit*****
